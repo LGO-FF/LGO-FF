@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Shifat Ullah Labib!
+- 👀 I’m interested in Web Development and Game Development.
+- 🌱 I’m currently learning JavaScript for Web Development.
+- I'm very much glad to learn programming as a student of  class 6 in Chittagong Government High School, Chittagong, Bangladesh.
+- FOR CONTACT WITH ME - labibgamerofficial07@gmail.com .
+- YT CHANNEL - LGO FF {FOR GAMING}
